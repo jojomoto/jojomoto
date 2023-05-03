@@ -1,1 +1,1 @@
-Math nerd with an interest in problem solving.
+Math nerd that enjoys learning and being challenged.
